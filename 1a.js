@@ -1,1 +1,4 @@
 SĀKUMS
+
+yugweuygweygKQ
+38YI7YTYGUYAWGG
